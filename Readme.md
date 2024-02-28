@@ -1,4 +1,4 @@
-﻿![](https://img.hhcdn.ru/photo/629711071.jpeg?t=1708933622&h=Q5mZ90K5Sp2MLclZAGJKAg) <br>
+﻿![](https://img.hhcdn.ru/photo/629711071.jpeg?t=1709189453&h=9NgMF_P_lIuUMzhbvXM0eA) <br>
 ### **Совчик Марк Игоревич**<br>
  Мужчина, 30 лет, родился 25 марта 1993 <br> +7 (999) 568-86-50<br><Mark_sovchik@vk.com><br>Другой сайт: https://github.com/MarkSovchik?tab=repositories<br>Проживает: Екатеринбург (GMT+5), м. Чкаловская<br>Гражданство: Россия, есть разрешение на работу: Россия<br>Не готов к переезду, не готов к командировкам<br>
 
